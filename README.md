@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Heichtech
 - 👀 I’m interested in Coding & Cuber security 
 - 🌱 I’m currently learning Cyber security. 
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on cyber security, Web development & design.
 - 📫 How to reach me, email me at hesbonenyaidho488@gmail.com 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: Not over until it's over. 
